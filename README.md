@@ -11,3 +11,5 @@
 ##### People now use the internet and the computer as there language 💻
 
 ###### So it's better to use a programming language to say hello to the world :smiley:
+
+A vampire 🧛‍♂️, hopefully me, will drink your blood in his glass 🍸
